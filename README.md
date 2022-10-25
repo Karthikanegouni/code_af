@@ -11,4 +11,6 @@
 ## Have fun 😉
 
 
-Instagram : @a_karthik_goud
+Instagram : @coders_lyrics 
+
+Author: @a_karthik_goud
